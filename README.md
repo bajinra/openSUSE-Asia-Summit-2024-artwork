@@ -1,0 +1,1 @@
+# openSUSE-Asia-Summit-2024-artwork
